@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @svanburen
 - 👀 I’m interested in everything
-- 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on all
-- 📫 Do not reach me 
+- 🌱 I’m currently learning a lot
+- 💞️ I’m looking to collaborate
+- 📫 Do not reach me
 - 😄 Pronouns: Yes
 - ⚡ Fun fact: Hahaha
 
